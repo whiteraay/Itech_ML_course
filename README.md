@@ -2,4 +2,4 @@
 
 **Aknur Mansurkhan**
 
-**TechOrda 2025**
+**TechOrda 2025-2026**
